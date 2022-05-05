@@ -1,1 +1,1 @@
-# Lol
+# Lol.github.io
